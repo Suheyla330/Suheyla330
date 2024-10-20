@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Suheyla330
+- 👀 I’m interested in Physics and Informatic
+- 🌱 I’m currently learning Github!
+- 💞️ I’m looking to collaborate on new assignments and projects.
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I'm a mother of two kids
